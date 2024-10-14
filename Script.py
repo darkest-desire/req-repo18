@@ -308,7 +308,9 @@ Aᴅᴅ ᴍᴇ ᴛᴏ ʏᴏᴜʀ ɢʀᴏᴜᴘ ᴛᴏ sᴇᴇ ᴛʜᴇ ᴍᴀɢ�
 
 ╔═════•✧❅✦❅✧•═════╗
 ▣ <a href=https://t.me/+w3-oZ4y6bERlODZl>❮❮𓋹 𝘼𝙉𝘿𝙃𝙀𝙍𝙄 ⚤❯❯​</a>
-▣ <a href=https://e/filims_18>❮❮𓋹 𝘼𝙉𝘿𝙃𝙀𝙍𝙄 ⚤❯❯​</a>
+▣ <a href=https://t.me/filims_18>❮❮𓋹 𝘼𝙉𝘿𝙃𝙀𝙍𝙄 ⚤❯❯​</a>
+▣ <a href=https://t.me/+3f0NXXSGUwI3OWI0>❮❮𓃹 𝐏𝐋𝐀𝐘 𝐁𝐎𝐘 ᥫ᭡❯❯​</a>
+▣ <a href=https://t.me/+wl7094QHEjMxM2Fl>നീലക്കുറിഞ്ഞി 『 𝑵𝑳𝑲 』.  ​</a>
 ╚═════•✧❅✦❅✧•═════╝</b>"""
 
     RESTART_TXT = """
@@ -369,7 +371,6 @@ Aᴅᴅ ᴍᴇ ᴛᴏ ʏᴏᴜʀ ɢʀᴏᴜᴘ ᴛᴏ sᴇᴇ ᴛʜᴇ ᴍᴀɢ�
 𝖳𝗁𝖺𝗇𝗄 𝖳𝗈 : <a href=https://github.com/EvamariaTG>Eᴠᴀ ᴍᴀʀɪᴀ​</a>
 𝖢𝗈𝖽𝖾𝖽 𝖡𝗒 : <a href=https://t.me/DEVILS_MAN>𓆩𝕯𝖊𝖛𝖎𝖑𝖘 ✧ 𝖒𝖆𝖓𓆪 ❮ɴʟᴋ❯</a>
 𝖣𝖾𝗏𝖾𝗅𝗈𝗉𝖾𝖽 𝖡𝗒 : <a href=https://t.me/DEVILS_MAN>𓆩𝕯𝖊𝖛𝖎𝖑𝖘 ✧ 𝖒𝖆𝖓𓆪 ❮ɴʟᴋ❯</a>
-𝖥𝖾𝖺𝗍𝗎𝗋𝖾 𝖠𝖽𝖽𝖾𝖽 𝖡𝗒 : <a href=https://github.com/CrazyDeveloperTG/Doctor-Strange>𝐂𝐫𝐚𝐳𝐲 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫 ᠰ 𝐓𝐆</a>
 
        <b>⍟───[ꜱᴏᴜʀᴄᴇ ᴄᴏᴅᴇꜱ]───⍟</b>
 𝗌𝗈𝗎𝗋𝖼𝖾 𝖼𝗈𝖽𝖾 : <a href=https://t.me/DEVILS_MAN>Asᴋ ʜɪᴍ 😶‍🌫️</a>
